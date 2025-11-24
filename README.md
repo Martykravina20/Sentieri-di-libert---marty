@@ -1,2 +1,2 @@
-# sentieri-di-libert-2
+# sentieri-di-libertà
 Martina: Explorer, Storyteller, Freedom Lover
